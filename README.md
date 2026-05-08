@@ -4,7 +4,7 @@ Use **[SimCode Free Numbers](https://simcodeapp.com/free-numbers)** to receive S
 
 👉 **Start here:** [Receive SMS Online Free with SimCode](https://simcodeapp.com/free-numbers)
 
-<img width="1480" height="1219" alt="simcode-free-numbers-screenshot" src="https://github.com/user-attachments/assets/ddf74904-c145-49a1-a310-498d40c9c640" />
+<img width="1480" height="1219" alt="simcode-free-numbers-screenshot" src="https://github.com/user-attachments/assets/540206fe-1ec4-415c-9d7d-acd4bc3d3822" />
 
 ---
 
